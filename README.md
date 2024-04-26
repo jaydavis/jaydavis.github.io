@@ -1,1 +1,0 @@
-# jaydavis.github.io
